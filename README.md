@@ -1,1 +1,0 @@
-# gemilang-lencana
